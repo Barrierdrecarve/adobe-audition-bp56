@@ -1,4 +1,4 @@
-# 
+# Secreto Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com gravação de áudio e suporte a plugins. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
